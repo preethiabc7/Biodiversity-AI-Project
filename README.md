@@ -96,6 +96,16 @@ Suggested Protection Strategies:
 - Park A: Increase monitoring and protection of high-risk species.
 - Park B: Implement habitat restoration programs.
 ```
+![IMG-20250506-WA0015](https://github.com/user-attachments/assets/7e2f127e-93e6-4a86-a53f-06a2052c1d7f)
+![IMG-20250506-WA0011](https://github.com/user-attachments/assets/3c8cf925-349d-44de-92ae-dfd76571ff2a)
+![IMG-20250506-WA0014](https://github.com/user-attachments/assets/05b0189a-6ada-4753-800f-2f35534ba25e)
+![IMG-20250506-WA0008](https://github.com/user-attachments/assets/5a291a5c-5de0-4dbc-a9f6-809123a29409)
+![IMG-20250506-WA0007](https://github.com/user-attachments/assets/47580abb-13fb-4fa8-ad4b-b5d197101978)
+![IMG-20250506-WA0009](https://github.com/user-attachments/assets/1ee4ac70-0ae3-43d1-a042-dd42f5db205c)
+![IMG-20250506-WA0010](https://github.com/user-attachments/assets/b39d495f-2f60-421f-88b0-7a1882cd7310)
+![IMG-20250506-WA0012](https://github.com/user-attachments/assets/44f571c1-8c78-4eac-9ad9-5163603feed0)
+![IMG-20250506-WA0013](https://github.com/user-attachments/assets/0525ded0-30e5-4ce7-80d3-b30764345859)
+
 
 ---
 
